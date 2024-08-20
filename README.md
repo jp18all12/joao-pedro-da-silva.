@@ -3,7 +3,7 @@ boas vindas ao meu perfil!...
 
 Meu nome é joao pedro da silva
 
-![![images](https://miro.medium.com/v2/resize:fit:736/0*e2FeM-WKmvdXJs9W.jpg)
+![![images](https://media.tenor.com/5BYK-WS0__gAAAAM/cool-fun.gif)
 ]
 
 Estou estudando na Alura
